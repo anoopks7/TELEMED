@@ -1,4 +1,3 @@
 # TELEMED
 # telemededede
-just now
-#ndalsjclzmm:
+just now9aiscjapsijcia
